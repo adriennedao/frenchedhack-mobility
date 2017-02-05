@@ -1,4 +1,4 @@
-# Savoir-vivre
+# Team Savoir-vivre
 
 Team Members: Reem El Seed, Leena El Seed, Adrienne Dao, Drew Gayheart
 
